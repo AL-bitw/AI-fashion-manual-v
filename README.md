@@ -1,1 +1,0 @@
-# AI-fashion-manual-v
